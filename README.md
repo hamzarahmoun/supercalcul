@@ -1,1 +1,6 @@
 ![6](https://github.com/hamzarahmoun/supercalcul/assets/54839351/0b6fb22f-506c-438c-aee6-fac6fe72cef3)
+![1](https://github.com/hamzarahmoun/supercalcul/assets/54839351/057e4243-7b87-4a59-b51a-9e3081ff51e7)
+![2](https://github.com/hamzarahmoun/supercalcul/assets/54839351/f08d9d84-d388-4416-9ae4-a9e140a33d60)
+![4](https://github.com/hamzarahmoun/supercalcul/assets/54839351/9b0c3401-dbe8-42f2-968c-cf06adffd2bf)
+![3](https://github.com/hamzarahmoun/supercalcul/assets/54839351/84801834-03ed-48dd-b766-632f529e6ad8)
+![5](https://github.com/hamzarahmoun/supercalcul/assets/54839351/f9239718-8925-421d-afbd-fd8a975e083c)
